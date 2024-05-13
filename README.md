@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+Je suis un étudiant en L3 qui cherche une alternance pour l'année prochaine
